@@ -7,4 +7,5 @@ It will be saved permanently and you can see your profile anywhere anytime by cl
 
 IT SEEM TO BE APPEAR LIKE THIS :-
 
-![Capture](https://github.com/Pettu449/Pettu449/assets/155649398/fb38d21c-a894-494b-9693-b298d63116b1)
+![Capture](https://github.com/Pettu449/Pettu449/assets/155649398/eaba448a-dfdd-4f7f-b225-963465a43944)
+
