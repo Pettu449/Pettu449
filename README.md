@@ -1,12 +1,13 @@
 - 👋 Hi, I’m @Pettu449 aka Prerit Tomar
--        I usually live in Haryana,India and currently I am 14 years old.
+
+  I usually live in Haryana,India and currently I am 14 years old.
 -    
 - 👀 I’m interested in Web Development, Trading, Programming etc.
 - 🌱 I’m currently learning Trading and Web Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:-
-- You can reach me through my email (prerittomar798@gmail.com) or
--                          my Phone Number ( 7056290059 ) 
+- You can reach me through my email 
+                                   prerittomar798@gmail.com
 -                                 
 - Crush: 1) Paisa! Paisa! Paisa!
 -        2) Ghar aka Kothi !!!
