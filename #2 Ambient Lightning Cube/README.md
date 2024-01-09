@@ -2,7 +2,8 @@ Hey! Its me Pettu449 aka Prerit and
 
 This is a new project ALE(Ambient Lightning Effect)
 
-In this, there is a CUBE with Ambient Lightning Effect
+In this, there is a 3D CUBE with Ambient Lightning Effect
+also, It rotates continuously.
 
 This is how it Looks :-
 
