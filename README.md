@@ -8,7 +8,9 @@
 - 📫 How to reach me:-
 - You can reach me through my email 
                                    prerittomar798@gmail.com
--                                         Only Want:1) Paisa! Paisa! Paisa!
+-                                         
+
+-Only Want:1) Paisa! Paisa! Paisa!
 -          2) Ghar aka Kothi !!!
 -          3) Gadi aka Luxury!!!
   
