@@ -1,6 +1,6 @@
 Hey! There, Its me Pettu449 aka Prerit 
 
-This CYBERFICTION project is made by me and IDEA given by
+This is a 3D CYBERFICTION project made by me and IDEA given by
 
                   https://www.youtube.com/@thesheryianscodingschool
 
