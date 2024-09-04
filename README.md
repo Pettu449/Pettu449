@@ -17,7 +17,7 @@
 - ⚡ Fun fact: I wanna be a MILLIONAIRE or a BILLIONAIRE
 
 - For More Info. you can contact me on Instagram
--                                      (prerit_968).
+-                                      (creepycamp_001).
 
 <!---n 
 Pettu449/Pettu449 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
