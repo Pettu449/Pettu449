@@ -2,9 +2,8 @@
 
   I usually live in Haryana,India and currently I am 14 years old.
 -    
-- 👀 I’m interested in Web Development, Trading, Programming etc.
+- 👀 I’m interested in Web Development, Trading, DropShipping etc.
 - 🌱 I’m currently learning Trading and Web Development
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:-
 - You can reach me through my email 
                                    prerittomar798@gmail.com
