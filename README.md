@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pettu449 aka Prerit Tomar
 
-  I usually live in Haryana,India and currently I am 14 years old.
+  I usually live in Haryana,India and currently I am 15 years old.
 -    
 - 👀 I’m interested in Web Development, Trading, DropShipping etc.
 - 🌱 I’m currently learning Trading and Web Development
